@@ -1,4 +1,4 @@
 
 
-https://github.com/zaidfrayeh/-Automated-Playing-Card-Sorter/assets/170974361/eb914ecc-5f67-4879-b5d7-1afdf13dc8ec
+https://github.com/zaidfrayeh/-Automated-Playing-Card-Sorter/assets/170974361/a9bf2004-f5c3-4df3-a39a-c38277e1bd8d
 
